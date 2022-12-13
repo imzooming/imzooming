@@ -1,5 +1,4 @@
-zoomie taking over, boomie going under
-
+Zazed retard zoomer
 
 <!---
 imzooming/imzooming is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
